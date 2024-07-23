@@ -1,1 +1,1 @@
-This is for Techplement intership work
+This is for Techplement internship work
